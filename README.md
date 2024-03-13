@@ -2,6 +2,18 @@
 
 #output
 
+![YT LOGO 2](https://github.com/ahmadhussanin/GRAPHIC-DESIGNS/assets/161748672/16c391a3-638f-4e57-9e67-93e524a44e19)
+
+#output
+
+![LOGO 3](https://github.com/ahmadhussanin/GRAPHIC-DESIGNS/assets/161748672/812ab15b-2552-4aed-b25a-be5cf2487627)
+
+#output
+
+![yt logo](https://github.com/ahmadhussanin/GRAPHIC-DESIGNS/assets/161748672/90147adb-4bff-45d7-b7e6-4fdecf2b3fd1)
+
+#output
+
 ![PROTFOLIO DESIGN 1](https://github.com/ahmadhussanin/GRAPHIC-DESIGNS/assets/161748672/6aaad0a1-0384-45d2-b9f8-53a91f072b7a)
 
 #output
