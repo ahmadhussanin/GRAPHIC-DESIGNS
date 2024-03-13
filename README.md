@@ -10,10 +10,6 @@
 
 #output
 
-![yt logo](https://github.com/ahmadhussanin/GRAPHIC-DESIGNS/assets/161748672/90147adb-4bff-45d7-b7e6-4fdecf2b3fd1)
-
-#output
-
 ![PROTFOLIO DESIGN 1](https://github.com/ahmadhussanin/GRAPHIC-DESIGNS/assets/161748672/6aaad0a1-0384-45d2-b9f8-53a91f072b7a)
 
 #output
